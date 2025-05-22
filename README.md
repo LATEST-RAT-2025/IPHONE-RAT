@@ -9,7 +9,7 @@
 ![Screenshot](https://i.imgur.com/bSJNBe7.jpeg))
 
 
-[![CONTACT](https://rentry.org/HivE0147)
+[CONTACT](https://rentry.org/HivE0147)
 
 ### :rocket: Features
 
@@ -41,4 +41,7 @@
 
 - ![](https://i.imgur.com/LptPPMb.jpeg)
 
+[CONTACT](https://rentry.org/HivE0147)
+
 - ![](https://i.imgur.com/bayWX7B.jpeg)
+
