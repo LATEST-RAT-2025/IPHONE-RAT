@@ -9,7 +9,7 @@
 ![Screenshot](https://i.imgur.com/bSJNBe7.jpeg))
 
 
-[CONTACT](https://rentry.org/HivE0147)
+[CONTACT](https://rentry.org/LATESTRAT)
 
 ### :rocket: Features
 
